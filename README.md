@@ -1,3 +1,3 @@
-最新官网地址：https://seessr.xyz
+最新官网地址：https://airgo.monster
 
-**🔴[seessr最新官网地址 ](https://seessr.xyz)🔴**                  2019-09-30
+**🔴[seessr最新官网地址 ](https://airgo.monster)🔴**                  2019-09-30
